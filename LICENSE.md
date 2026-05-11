@@ -1,4 +1,4 @@
-#  
+#  Get the ultimate Things 3 for macOS automation with best Automation for Things 3 for macOS - widgets and auto-sync. Featuring widgets and auto-sync, it's the best choice for macOS
 
 
 
